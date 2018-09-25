@@ -1,1 +1,1 @@
-This a read me. Be sure you exhaust this guide
+This a read me. Be sure you exhaust this guide and read all through
